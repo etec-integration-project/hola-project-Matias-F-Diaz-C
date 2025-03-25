@@ -1,1 +1,1 @@
-Por Matias Diaz, hace 2 dias me pelaron
+Por Matias Diaz, hace 10 dias me pelaron
